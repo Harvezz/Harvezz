@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning **Linux**
 
-- 📫 How to reach me **Discord:Harvey#1215**
+- 📫 How to reach me Discord:**Harvey#1215**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
